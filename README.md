@@ -2,7 +2,7 @@
 - 👀 I’m interested in - IT Tech Reruitment in USA
 - 🌱 I’m currently learning ... Learning AI
 - 💞️ I’m looking to collaborate on ... IT Opportunties and postions related to techology recruitment in USA
-- 📫 How to reach me ... richard.pereira@experis.com Linkedin: https://www.linkedin.com/in/richard-perreira-59684b63/
+- 📫 How to reach me ... Email: richard.pereira@experis.com Linkedin: https://www.linkedin.com/in/richard-perreira-59684b63/ Phone: +1 414-269-3189
 
 <!---
 RichyPerreira/RichyPerreira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
